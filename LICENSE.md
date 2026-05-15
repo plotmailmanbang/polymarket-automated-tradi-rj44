@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with vip Polymarket Plugin | trailing-stops + liquidity-provision, the #1 plugin. Includes trailing-stops and liquidity-provision for a smoother
 
 
 
